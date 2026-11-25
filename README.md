@@ -7,6 +7,8 @@
 
 https://github.com/user-attachments/assets/33033bce-979e-4cb9-a51d-2c50992f27c6
 
+Видео на диске: 
+https://disk.yandex.ru/i/jx9rGnEOakXalw
 
 **Прототип автоматической проверки понятности условий труда в вакансиях Калининградской области.**
 
